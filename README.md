@@ -1,1 +1,1 @@
-im bored
+idk
